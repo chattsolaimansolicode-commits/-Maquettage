@@ -1,0 +1,1 @@
+https://www.figma.com/proto/DiEE3jbnnhb9n0L4lzWItW/Simple-Portofolio--Community-?node-id=1-2&p=f&t=ZwS7RfgmbgqMi7Ot-0&scaling=min-zoom&content-scaling=fixed&page-id=0%3A1&starting-point-node-id=1%3A2&show-proto-sidebar=1
